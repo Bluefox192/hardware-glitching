@@ -1,1 +1,1 @@
-# Proyek Hardware Glitching Blu
+# Proyek Hardware Glitching 
