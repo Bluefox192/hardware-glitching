@@ -98,7 +98,7 @@ Ingin berdiskusi atau berkolaborasi?
 ## 📬 Contact
 
 Made with ❤️ by [Bluefox192](https://github.com/bluefox192)  
-For questions or collaborations: `bluefox192 [at] pm.me`
+For questions or collaborations: [Bluefox192](https://github.com/bluefox192)
 
 ---
 
